@@ -2,10 +2,10 @@ Músicas preferidos da equipe
 
 Músicas preferidas de JOAO
 
-LOREN YPSUM
-LOREN YPSUM
-LOREN YPSUM
-LOREN YPSUM
+LOREN JOAO MUSICA
+LOREN JOAO MUSICA
+LOREN JOAO MUSICA
+LOREN JOAO MUSICA
 
 Músicas preferidas de Crizan
 
