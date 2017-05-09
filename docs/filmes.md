@@ -2,10 +2,10 @@
 
 ## Filmes preferidos de JOAO
 
-- LOREN YPSUM
-- LOREN YPSUM
-- LOREN YPSUM
-- LOREN YPSUM
+- LOREN JOAO
+- LOREN JOAO
+- LOREN JOAO
+- LOREN JOAO
 
 ## Filmes preferidos de EVAIR
 
